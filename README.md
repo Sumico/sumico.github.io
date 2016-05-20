@@ -1,1 +1,0 @@
-# sumico.github.io
